@@ -1,1 +1,2 @@
 ![image alt](https://github.com/Kirithick-raja/PUC-manual/blob/f8bfb722a35f24cbc22306a3a0e94865454e0ab9/week-01-S01/Week-01-01-Practice%20Session-Coding_%20Attempt%20review%20_%20REC-CIS%20-%20Google%20Chrome%2012-01-2025%2011_13_11.png)
+![image alt](https://github.com/Kirithick-raja/PUC-manual/blob/fea0d5e001f5f168883a7b315b64df27def36017/week-01-S01/Week-01-01-Practice%20Session-Coding_%20Attempt%20review%20_%20REC-CIS%20-%20Google%20Chrome%2012-01-2025%2012_09_41.png)
