@@ -3,3 +3,4 @@
 ![image alt](https://github.com/Kirithick-raja/PUC-manual/blob/4573bfb800c8a7719ddad9bd6152a4a0dacf85a7/Week-01-01-Practice%20Session-Coding_%20Attempt%20review%20_%20REC-CIS%20-%20Google%20Chrome%2012-01-2025%2012_37_01.png)
 ![image alt](https://github.com/Kirithick-raja/PUC-manual/blob/1f671db3c23b52789f3205bb433e6466f0bbadd3/week-01-S01/Week-01-01-Practice%20Session-Coding_%20Attempt%20review%20_%20REC-CIS%20-%20Google%20Chrome%2012-01-2025%2012_41_07.png)
 ![image alt](https://github.com/Kirithick-raja/PUC-manual/blob/af359ac48da9ae589dbf7205ec0fe619132dea3a/week-01-S01/Week-01-01-Practice%20Session-Coding_%20Attempt%20review%20_%20REC-CIS%20-%20Google%20Chrome%2012-01-2025%2012_46_46.png)
+![image alt](https://github.com/Kirithick-raja/PUC-manual/blob/8effa5637361c010e7bb03968ee7b59ce689e231/week-01-S01/Week-01-01-Practice%20Session-Coding_%20Attempt%20review%20_%20REC-CIS%20-%20Google%20Chrome%2012-01-2025%2012_48_55.png)
